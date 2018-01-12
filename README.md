@@ -1,2 +1,2 @@
 # testmygo
-[porn star](www.google.com)
+[porn star](https://www.google.com)
